@@ -14,3 +14,6 @@ Rai Suardhyana Arijasa
 Ravi Ananta Nirwanto
 Reza Mohammad Darojad
 Rian Apriansyah
+
+
+However, Pria was left the workshop earlier to work with his client
